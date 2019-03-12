@@ -1,0 +1,1 @@
+# ChippingSparrows_DailyPatterns
